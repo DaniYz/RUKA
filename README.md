@@ -3,7 +3,7 @@
 trabajo en equipo 2
 
 
-Me confundoooooooo xd xd 
+Mi gato se llama Pochi c: 
 
 
 //Naya estuvo aqui
