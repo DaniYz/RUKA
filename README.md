@@ -1,7 +1,6 @@
 # RUKA
 
-trabajo en equipo 2
-
+Esta es una modificación de la linea1
 
 Mi gato se llama Pochi c: 
 
