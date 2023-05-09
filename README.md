@@ -5,8 +5,7 @@ trabajo en equipo 2
 
 Me confundoooooooo xd xd 
 
-
-//Naya estuvo aqui
+Me gusta el pan con huevo
 
 paltitas
 
