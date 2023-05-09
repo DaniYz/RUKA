@@ -8,7 +8,7 @@ Me confundoooooooo xd xd
 
 //Naya estuvo aqui
 
-paltitas
+patito
 
 
 "felipito was here"
