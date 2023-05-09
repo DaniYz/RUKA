@@ -8,7 +8,7 @@ Mi gato se llama Pochi c:
 
 //Naya estuvo aqui
 
-paltitas
+patito
 
 
 "felipito was here"
