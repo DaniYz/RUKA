@@ -1,2 +1,7 @@
 # RUKA
 trabajo en equipo 2
+
+
+
+
+//Naya estuvo aqui
